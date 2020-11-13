@@ -1,4 +1,4 @@
-I didn't read much fiction in my 20's. Instead I enjoyed a wide variety of nonfiction, from autobiography to science to how-to books. A nonfiction author I enjoyed, Natalie Goldberg, a talented writer who herself is an expert on the topic of writing, mentioned that Cormac McCarthy was one of her favorite authors. So when I found a Cormac McCarthy book on the shelf in my apartment complex's free library, I borrowed it.
+I didn't read much fiction in my 20's. Instead I enjoyed a wide variety of nonfiction, from autobiography to science to how-to books. A nonfiction author I enjoyed, Natalie Goldberg who is an expert on the topic of writing, mentioned that Cormac McCarthy was one of her favorite authors. So when I found a Cormac McCarthy book on the shelf in my apartment complex's free library, I borrowed it.
 
 Side note: if your apartment complex doesn't keep a library for its residents, don't live there (to bastardize a John Waters quote)...or at least, convince the management to create one.
 
@@ -6,7 +6,7 @@ Cormac McCarthy's Child of God was the first fiction book I'd read in a decade. 
 
 I had also never torn a page clean out of a book before. One passage was so grotesque, so vivid and repulsive that I ripped the page out of the book, crumpled it, and threw it in the trash to ensure I would never read it again. Of course, this had the effect of burning the words so clearly into memory that I do not need the forsaken page to remind me what it said. I will not repeat it here. You should read the book yourself.
 
-After I finished Child of God I set out to read Cormac McCarthy's entire body of work. At present I'm two books shy of completing this goal. 
+After I finished Child of God I set out to read Cormac McCarthy's entire body of work. At present I'm two and a half books shy of completing this goal. 
 
 Cormac McCarthy uses a rich vocabulary of words that even the most voracious lover of English may not recognize. As I read his books I found myself writing them down for sheer curiosity. But looking them up once was not enough to learn their meaning and usage to the extent that I might someday implement them as naturally as McCarthy does.
 
