@@ -2,7 +2,7 @@ I didn't read much fiction in my 20's. Instead I enjoyed a wide variety of nonfi
 
 Side note: if your apartment complex doesn't keep a library for its residents, don't live there (to bastardize a John Waters quote)...or at least, convince the management to create one.
 
-Cormac McCarthy's Child of God was the first fiction book I'd read in a decade. I'll admit the plot itself was vulgar, horrifying, and so offensive I might have thrown the book in the trash if it weren't for the extraordinary beauty of the language in which McCarthy wrote it. I had never seen sentences crafted that way. I had never encountered such music, such subtlety, such perfect craftsmanship right there on the page.
+Cormac McCarthy's Child of God was the first fiction book I'd read in a decade. I'll admit the plot itself was vulgar, horrifying, and so offensive I might have thrown the book away if it weren't for the extraordinary beauty of the language in which McCarthy wrote it. I had never seen sentences crafted that way. I had never encountered such music, such subtlety, such perfect craftsmanship right there on the page.
 
 I had also never torn a page clean out of a book before. One passage was so grotesque, so vivid and repulsive that I ripped the page out of the book, crumpled it, and threw it in the trash to ensure I would never read it again. Of course, this had the effect of burning the words so clearly into memory that I do not need the forsaken page to remind me what it said. I will not repeat it here. You should read the book yourself.
 
